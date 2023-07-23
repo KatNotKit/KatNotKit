@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KatNotKit
+- 👀 I’m interested in creating content on youtube on other platforms.
+- 🌱 I’m currently learning LUA and C#
+- 📫 How to reach me Kat_is_here11@proton.me for business or inquiries 
